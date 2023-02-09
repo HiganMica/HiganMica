@@ -1,4 +1,9 @@
-### Hi there 👋
+# About me
+RainCandy Technology Site Admin | Beauti, dashing, and forever young</br>
+雨糖科技站长 | 绮丽 潇洒 永远年轻</br>
+</br>
+微博: RainCandy久留美</br>
+远景论坛：永远的梦境</br>
 
 <!--
 **ShinjoKurumi/ShinjoKurumi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
