@@ -2,7 +2,7 @@
 Founder & Site Admin of RainCandy Technology | Beauti, dashing, and forever young</br>
 雨糖科技创始人 & 站长 | 绮丽 潇洒 永远年轻</br>
 </br>
-微博: RainCandy久留美</br>
+微博: [RainCandy久留美](https://weibo.com/shinjokurumi)</br>
 远景论坛：永远的梦境</br>
 我学会声会影：[彼岸弥香](http://www.hy345.com/space-uid-168997.html)</br>
 
